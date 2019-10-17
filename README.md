@@ -1,7 +1,4 @@
 # Random-txt
 wow
 I haven't used this in so long. :)
-Things I need to do:
-1. homework, cause homework sucks!
-2. learn to cook, I'm hungry...
-3. Make a longer list cause 3 is too short.
+
