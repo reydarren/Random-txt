@@ -1,3 +1,3 @@
 # Random-txt
 wow
-I havent used this in so long :)
+I haven't used this in so long. :)
